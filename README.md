@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **neathiraja09@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAE5DMCTBbc/OJW6DMc4FrfOk7GGqU5m3w/edit](https://www.canva.com/design/DAE5DMCTBbc/OJW6DMc4FrfOk7GGqU5m3w/edit)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
